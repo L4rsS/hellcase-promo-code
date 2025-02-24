@@ -2,8 +2,8 @@
 
 Welcome to the ultimate guide to maximizing your CS2 case-opening experience with Hellcase! This README explains how to use a special promo code to boost your account balance, explore unique features, and enjoy extra rewards on one of the top case-opening platforms.
 
->>> Click here for a free case ($0.70) + Up to 10% Deposit Bonus <<<
->>> https://hellcase.com/?ref=KANTONL1337 <<<
+> > > Click here for a free case ($0.70) + Up to 10% Deposit Bonus < < <
+> > > https://hellcase.com/?ref=KANTONL1337 < < <
 
 ## Why Choose Hellcase?
 
